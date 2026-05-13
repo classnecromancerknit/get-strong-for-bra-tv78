@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots automatic Script is the best get strong for brainrots Script, featuring esp and god mode. Safe and powerful for all your
 
 
 
